@@ -1,1 +1,1 @@
-A`llah help me
+A`llah help me.Allah help me.
